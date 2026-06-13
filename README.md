@@ -1,7 +1,7 @@
 <img align="left" width="500" src="https://github.com/floralies/test/blob/478a2a9f2150e89b383d179fe78f2ff3acee3513/IMG_2287.png">
 
 
-　<div align="center">![image](https://github.com/floralies/test/blob/a4c96468e1ac1be5822d3575db2d6cce846b53a3/IMG_2302.gif)　kate　𓏫　she　⸝⸝　her　⏖　𖦹
+　<div align="center">![image](https://github.com/floralies/test/blob/a4c96468e1ac1be5822d3575db2d6cce846b53a3/IMG_2302.gif)　kate　𓏫　she　⸝⸝　her　⏖　𓈒
 
 ![](https://komarev.com/ghpvc/?username=aevsria&label=⠀⠀⠀⦮⠀⦯⠀⠀⠀&color=a058b2)　![image](https://github.com/floralies/test/blob/c0e0cc73916e53c820eac9ee403b698fc9d65907/IMG_2301.gif)　<img src="https://img.shields.io/badge/ฅ ฅ--fde9fd" alt="Description">
 
