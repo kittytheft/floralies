@@ -1,4 +1,4 @@
-<img align="left" width="750" src="https://github.com/floralies/test/blob/478a2a9f2150e89b383d179fe78f2ff3acee3513/IMG_2287.png">
+<img align="left" width="500" src="https://github.com/floralies/test/blob/478a2a9f2150e89b383d179fe78f2ff3acee3513/IMG_2287.png">
 　
 
 　　
