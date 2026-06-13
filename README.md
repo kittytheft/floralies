@@ -10,8 +10,6 @@
 
  ֔◜ ͡ ִ ֗ 𓏼iwcaution/care　⋮　always offtab or afk　𖦹
 
-###### <div align="center"> ⠀𓉸　cipher graphics : @astr0v4l on tumblr 𓈒
-
-![image](https://github.com/floralies/test/blob/478a2a9f2150e89b383d179fe78f2ff3acee3513/IMG_2304.gif)　in another life amphoreous, shall we meet again.　♪ ͡ໃ﹒﹕۪
+###### <div align="center"> ⠀𓉸　cipher graphics : @astr0v4l on tumblr 𓈒　![image](https://github.com/floralies/test/blob/478a2a9f2150e89b383d179fe78f2ff3acee3513/IMG_2304.gif)
 
 <br clear="left"/>
